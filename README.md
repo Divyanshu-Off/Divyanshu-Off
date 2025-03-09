@@ -1,5 +1,5 @@
 # 💫 About Me:
-I m currently pursuing my studies in SRMIST Kattankulathur,<br>I enjoy my time in coding and especially GAMING,<br>In search for the various mysterious that lies ahead in time,<br><br>Characteristics:<br>Diet - Aggressive<br>Sleep - Owl<br>Efficiency - High enough under pressure<br><br><br> 
+I m currently pursuing my studies in SRMIST Kattankulathur,<br>I enjoy my time in coding and especially GAMING,<br>In search for the various mysterious that lies ahead in time,<br><br>Characteristics:<br>Diet - Aggressive<br>Sleep - Owl<br>Efficiency - High enough under pressure<br>Music : A bit wierd but enjoyable taste<br><br> 
 
 
 ## 🌐 Socials:
